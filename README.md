@@ -1,0 +1,2 @@
+# LifeLucky
+somethings for needing
